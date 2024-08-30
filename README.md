@@ -10,4 +10,4 @@ Meu nome é Eduardo Rucci
 
   eduardorucci26@gmail.com
 
-  **https://media1.tenor.com/m/KavktwzqBOAAAAAC/lebron-james-lebron.gif**
+  **https://tenor.com/pt-BR/view/peace-out-peace-sign-peace-ice-age-eddie-gif-16750982996130936929**
