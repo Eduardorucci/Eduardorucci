@@ -15,4 +15,4 @@ Meu nome é Eduardo Rucci
 
   eduardorucci26@gmail.com
 
-![](https://tenor.com/t7zQjsrzS7F.gif)
+https://tenor.com/t7zQjsrzS7F.gif
