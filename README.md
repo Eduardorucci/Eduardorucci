@@ -6,6 +6,11 @@ Meu nome é Eduardo Rucci
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
+- Sou bem habilidoso com computadores
+- Sou pontual
+- Sou bem comunicativo e extrovertido
+- Trabalho bem em equipe
+
   ### Você entrar em contato comigo 📫
 
   eduardorucci26@gmail.com
